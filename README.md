@@ -2,7 +2,7 @@
 - 👀 I’m interested in case studies and data analysis
 - 🌱 I’m currently learning machine learning
 - 📫 You can reach me on:
-- sourabhk087@gmail.com
+- sourabhk0834@gmail.com
 - https://www.linkedin.com/in/sourabh-kumar-2802b0215/
 
 <!---
